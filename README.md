@@ -1,6 +1,4 @@
-<p align="center">
 ![](https://komarev.com/ghpvc/?username=XxHeavyXMedicYaoixX&color=ff0000&style=plastic&label=place+visits)
-</p>
 
 <p align="center">
 You're pouting in your sleep
