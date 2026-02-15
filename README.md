@@ -4,7 +4,7 @@
 <br>  
 
 hellouuu... 👀 <br>
-he/him 😄 im an observant little boy i crown everyone !!! <br>
+i think i will just keep my information private from now on, im a silly dunce :C <br>
 now read my rentry.co page. <br>
 
 whatever <br>
